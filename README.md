@@ -1,3 +1,3 @@
 # workshop
 \
-Watch the short course recording https://youtu.be/03CkRwDzHX4
+Watch the short course recording https://www.youtube.com/watch?v=YJGuRNJnnes
